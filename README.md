@@ -12,5 +12,5 @@ I'm here to fuck around maybe make a couple things
 
 -  Adjectives: Tired/Chaotic
 
--  Fun fact: I'm actually a deep sea cod (shhhh don't tell anyone)
+-  Fun fact: I eat oranges whole, without peeling it.
  
