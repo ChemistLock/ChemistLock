@@ -12,5 +12,5 @@ I'm here to fuck around maybe make a couple things
 
 -  Adjectives: Insane/Tired
 
--  Fun fact: I'm actually a codfish (shhhh don't tell anyone)
+-  Fun fact: I'm actually a deep sea cod (shhhh don't tell anyone)
  
