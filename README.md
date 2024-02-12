@@ -10,7 +10,7 @@ I'm here to fuck around maybe make a couple things
 
 -  Pronouns: He/Him 
 
--  Adjectives: Insane/Sweet/Intelligent 
+-  Adjectives: Insane/Intelligent 
 
 -  Fun fact: I'm actually a codfish (shhhh don't tell anyone)
  
