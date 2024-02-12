@@ -1,6 +1,7 @@
 Hello!
-My name is Sherlock, but you may call me Lock
-I am an Aspiring Embalmer/FBI's most wanted criminal
+My name is Sherlock, but you may call me Lock.
+I am an Aspiring Embalmer/FBI's most wanted criminal 
+
 I'm here to fuck around maybe make a couple sites
 
 
