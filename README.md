@@ -10,7 +10,7 @@ I'm here to fuck around maybe make a couple things
 
 -  Pronouns: He/Him 
 
--  Adjectives: Insane/Tired
+-  Adjectives: Tired/Chaotic
 
 -  Fun fact: I'm actually a deep sea cod (shhhh don't tell anyone)
  
